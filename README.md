@@ -1,1 +1,1 @@
-not smart
+high school student
